@@ -1,0 +1,3 @@
+# Ivanindra-Rizky-Pratama_I0320054_Tiffany-Bella_Tugas2
+Penugasan 2 Praktikum Programa Komputer
+Selamat malam mas/mbak, Saya Ivanindra Rizky P I0320054 izin mengumpulkan penugasan 2 programa komputer. Terima kasih
